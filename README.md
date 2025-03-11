@@ -3,30 +3,15 @@
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
 ------
-:heart: :point_right: 【地址一】：https://yuese.d83myf9t9x.xyz
+:heart: :point_right: 【地址一】：https://okav.f67q8d78wr.xyz
 ------
-:heart: :point_right: 【地址二】：https://yuese.rjbevpuzwy.xyz
+:heart: :point_right: 【地址二】：https://okav.6wd76gyfky.xyz
 ------
-:heart: :point_right: 【地址三】 https://yuese.qqcacmrhjb.xyz
+:heart: :point_right: 【地址三】 https://okav.1a8jukshky.xyz
 -----
-:heart: :point_right: 【地址四】 ：https://yuese.j8dkdjfv7h.xyz
+:heart: :point_right: 【地址四】 ：https://okav.g2v2rm2426.xyz
 ------
-:heart: :point_right: 【地址五】 ：https://yuese.c2hv32hf3f.xyz
-------
-# 月色视频 (轻量备用版)
-:sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
-==
-
-------
-:heart: :point_right: 【地址一】：https://yuese.d83myf9t9x.xyz
-------
-:heart: :point_right: 【地址二】：https://yuese.rjbevpuzwy.xyz
-------
-:heart: :point_right: 【地址三】 https://yuese.qqcacmrhjb.xyz
------
-:heart: :point_right: 【地址四】 ：https://yuese.j8dkdjfv7h.xyz
-------
-:heart: :point_right: 【地址五】 ：https://yuese.c2hv32hf3f.xyz
+:heart: :point_right: 【地址五】 ：https://okav.kx473a5ah3.xyz
 ------
 ------
 :heart: :e-mail: 【邮箱联系方式】 ：yuesedizhi@gmail.com （以上地址无法访问请发送任意内容获取最新地址）
